@@ -1,0 +1,1 @@
+This is a game between Victor and Daniela practicing HTML tables in which she won with a total of 115 marks and i lost with a total of 85 marks. She ended it before we officially ended it so yeah that's how she won 😂
